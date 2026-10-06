@@ -1,0 +1,2 @@
+# premium-pickup-wind-001-guitar-pickup-winding-magnet
+Tired of losing track of your pickup winding recipes, magnet combos, and tone tests across scattered notes and sticky tabs?  The Guitar Pickup Winding &amp; Magnet Craft Hub is your all-in-one Notion workspace that brings every detail of your winding and magnet craft into a single, searchable system. No more forgotten specs or repeated mistakes — just
